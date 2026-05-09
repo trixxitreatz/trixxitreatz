@@ -6,4 +6,4 @@ currently learning how 2 code so i can make this look good
 
 (˶˃ᆺ˂˶)
 
-[ata](yattairl.atabook.org) 𖥔 [straw](https://yattaisme.straw.page) 𖥔 [prns](pronouns.cc/@yattairl)
+[ata](https://yattairl.atabook.org) 𖥔 [straw](https://yattaisme.straw.page) 𖥔 [prns](https://pronouns.cc/@yattairl)
