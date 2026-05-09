@@ -2,11 +2,8 @@
 
 ![](https://komarev.com/ghpvc/?username=yattairl&color=ff69b4&label=circus+members&style=plastic)
 
-![veepngsssg](bunnyvee.png)
-		
-idk how to code and make this look good..visit links i suppose
-ill make this look good eventually ig 
+currently learning how 2 code so i can make this look good
 
-ask me what i like bcus nothing is finished rn.
+(˶˃ᆺ˂˶)
 
-pfp and repo art is NOT mine , both graphics however ARE made by me
+[ata](yattairl.atabook.org) 𖥔 [straw](https://yattaisme.straw.page) 𖥔 [prns](pronouns.cc/@yattairl)
