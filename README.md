@@ -1,6 +1,6 @@
 <div align=center> 
 
-![](https://komarev.com/ghpvc/?username=yattairl&color=ff69b4&label=visitors&style=plastic)
+![](https://komarev.com/ghpvc/?username=yattairl&color=ff69b4&label=visitors&style=plastic&abbreviated=true)
 
 currently learning how 2 code so i can make this look good
 
