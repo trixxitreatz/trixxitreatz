@@ -20,6 +20,3 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bellefair&pause=1000&color=F781B8&center=true&vCenter=true&width=435&lines=%2C%2C+feel+the+magic+%2C+theres+something+that+drives+me+wild+%22" alt="Typing SVG" /></a>
 
 ![another divider here soon...](wow2.png)
-
-![caleb](calebiloveyou.jpg)
-caleb widogast broo om i wow my favorite ever
