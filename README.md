@@ -14,7 +14,7 @@
 
 ⊹₊˚‧︵‿₊ ε๑з ₊‿︵‧˚₊⊹
 
-<ins>c**o</ins>c**o*a* , c*o<ins>n***n</ins>i**e <ins>&</ins> e<ins>c*l</ins>***ip**se <ins>y</ins>*u***me** .ᐟ.ᐟ
+<ins>c**o</ins>c**o*a* , c*o<ins>n***n</ins>i**e <ins>&</ins> e<ins>c*l</ins>i*p**se** <ins>*yu*</ins>**m**e .ᐟ.ᐟ
 
 (˶˃ᆺ˂˶)
 
