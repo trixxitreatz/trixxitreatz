@@ -1,8 +1,8 @@
 <div align=center> 
 
-![image here soon]()
-
 ![](https://komarev.com/ghpvc/?username=yattairl&color=ff69b4&label=visitors&style=plastic&abbreviated=true)
+
+![image here soon]()
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bellefair&pause=1000&color=F781B8&center=true&vCenter=true&width=435&lines=%2C%2C+tonight+%2C+i+wanna+see+it+in+your+eyes+%22" alt="Typing SVG" /></a>
 
