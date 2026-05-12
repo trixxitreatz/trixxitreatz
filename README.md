@@ -7,7 +7,7 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bellefair&pause=1000&color=F781B8&center=true&vCenter=true&width=435&lines=%2C%2C+tonight+%2C+i+wanna+see+it+in+your+eyes+%22" alt="Typing SVG" /></a>
 
 
-<ins>y**a</ins>t**ta + s<ins>he**l</ins>l**y f**ict**ionkin , i dont mind d**o**<ins>u***b**l*e</ins>*s* 
+**he**<ins>av</ins>*y* <ins>y**a</ins>t**ta  f**ict**ionkin , i dont mind d**o**<ins>u***b**l*e</ins>*s* 
 
 ⊹₊˚‧︵‿₊ ε๑з ₊‿︵‧˚₊⊹
 
