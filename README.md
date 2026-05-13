@@ -15,6 +15,8 @@
 
 (˶˃ᆺ˂˶)
 
+cxh is always encouraged unless stated otherwise 
+
 [ata](https://yattairl.atabook.org) 𖥔 [straw](https://yattaisme.straw.page) 𖥔 [prns](https://pronouns.cc/@yattairl)
 
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Bellefair&pause=1000&color=F781B8&center=true&vCenter=true&width=435&lines=%2C%2C+feel+the+magic+%2C+theres+something+that+drives+me+wild+%22" alt="Typing SVG" /></a>
