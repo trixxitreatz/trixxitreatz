@@ -1,4 +1,9 @@
 <div align=center> 
+
+![](https://komarev.com/ghpvc/?username=yattairl&color=ff69b4&label=troupe+members)
+
+˶ᵔ ᵕ ᵔ˶  
+
 hii umm im updating this when i wanna ok . will probably look different in like a day or two
 super lazy
 
