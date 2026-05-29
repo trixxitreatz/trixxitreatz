@@ -7,6 +7,7 @@
 [ata](https://yattairl.atabook.org) 𖥔 [straw](https://yattaisme.straw.page) 𖥔 [prns](https://pronouns.cc/@yattairl)
 
 c+h is ALWAYS welcome and uhhmm i love cudpiles and uhh i usually try and int first if i think ur cool
+usually sitting w a friend most of the time ,, still come and cud tho..the mor the merrier
 
 looks at you with my big eyes
 ![looks at you](meisme.gif)
