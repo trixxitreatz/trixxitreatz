@@ -1,16 +1,17 @@
 <div align=center> 
 
-![](https://komarev.com/ghpvc/?username=yattairl&color=ff69b4&label=troupe+members)
+![](https://komarev.com/ghpvc/?username=yattairl&color=ff69b4&label=tent+visitors)
 
-˶ᵔ ᵕ ᵔ˶  
+# ˶ᵔ ᵕ ᵔ˶  
+
+![graphicby@yattairl](yattagraphic.png)
 
 [ata](https://yattairl.atabook.org) 𖥔 [straw](https://yattaisme.straw.page) 𖥔 [prns](https://pronouns.cc/@yattairl)
 
-c+h is ALWAYS welcome and uhhmm i love cudpiles and uhh i usually try and int first if i think ur cool
-usually sitting w a friend most of the time ,, still come and cud tho..the mor the merrier
+<sub> <ins> *art creds ; @vasyutas on tiktok , @clarkt on pin , @Mintyteah on pin* </ins> </sub>
 
-looks at you with my big eyes
+i struggle with conversation sometimes and my humor can be rude . <ins> **please**</ins> lmk if i make u comfy
 
-![yattapic](yattatumbler.png)
+ask me to be mentioned on git if i havent put you already C:
 
-discord is parasiticwisp if u wanna add me !!
+<sub>DISC ; parasiticwisp</sub>
