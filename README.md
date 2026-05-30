@@ -10,7 +10,7 @@
 
 <sub> <ins> *art creds ; @vasyutas on tiktok , @clarkt on pin , @Mintyteah on pin* </ins> </sub>
 
-i struggle with conversation sometimes and my humor can be rude . <ins> **please**</ins> lmk if i make u comfy
+i struggle with conversation sometimes and my humor can be rude . <ins> **please**</ins> lmk if i make u uncomfy
 
 ask me to be mentioned on git if i havent put you already C:
 
