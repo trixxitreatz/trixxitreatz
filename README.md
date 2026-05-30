@@ -10,6 +10,7 @@ c+h is ALWAYS welcome and uhhmm i love cudpiles and uhh i usually try and int fi
 usually sitting w a friend most of the time ,, still come and cud tho..the mor the merrier
 
 looks at you with my big eyes
-![looks at you](meisme.gif)
+
+![yattapic](yattatumbler.png)
 
 discord is parasiticwisp if u wanna add me !!
