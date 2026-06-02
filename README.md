@@ -6,6 +6,8 @@
 
 ![graphicby@yattairl](yattagraphic.png)
 
+<sub>doubles int freely !</sub>
+
 [ata](https://yattairl.atabook.org) 𖥔 [straw](https://yattaisme.straw.page) 𖥔 [prns](https://pronouns.cc/@yattairl)
 
 <sub> <ins> *art creds ; @vasyutas on tiktok , @clarkt on pin , @Mintyteah on pin* </ins> </sub>
