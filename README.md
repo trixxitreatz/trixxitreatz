@@ -14,6 +14,8 @@
 
 i struggle with conversation sometimes and my humor can be rude . <ins> **please**</ins> lmk if i make u uncomfy
 
+<sub> <ins> w2i pref , im offtab 90% of the time and probably wont see you msg / int otherwise !<ins> </sub>
+
 ask me to be mentioned on git if i havent put you already C:
 
 <sub>DISC ; parasiticwisp</sub>
