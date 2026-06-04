@@ -12,10 +12,18 @@
 
 <sub> <ins> *art creds ; @vasyutas on tiktok , @clarkt on pin , @Mintyteah on pin* </ins> </sub>
 
-i struggle with conversation sometimes and my humor can be rude . <ins> **please**</ins> lmk if i make u uncomfy
+### other info !
 
-<sub> <ins> w2i pref , im offtab 90% of the time and probably wont see you msg / int otherwise !<ins> </sub>
+<sub> this info section will eventually be replaced when i make my extended rentry .</sub>
 
-ask me to be mentioned on git if i havent put you already C:
+- i struggle with conversation sometimes and my humor can be rude . <ins> **please**</ins> lmk if i make u uncomfy
 
-<sub>DISC ; parasiticwisp</sub>
+- <ins> w2i pref , im offtab 90% of the time and probably wont see you msg / int otherwise !<ins>
+
+- sometimes i leave without warning , so if i do that to you im very sorry ! i do try and say something before i leave .
+
+- <ins>anyone under 14 please do not interact with me a whole lot . cuddling is fine , but dont expect us to be friends</ins>
+
+- ask me to be mentioned on git if i havent put you already C:
+
+<sub>discord ; parasiticwisp</sub>
