@@ -4,15 +4,11 @@
 
 # ˶ᵔ ᵕ ᵔ˶  
 
-![graphicby@yattairl](yattagraphic.png)
+taking a break , be back soon ! ( possibly ?? )
 
-<sub>doubles int freely !</sub>
+i will NOT be responding to any messages or ata signs , but your still welcome to leave one ! ill respond when im off break .
 
-[ata](https://yattairl.atabook.org) 𖥔 [straw](https://yattaisme.straw.page) 𖥔 [prns](https://pronouns.cc/@yattairl)
-
-<sub> <ins> *art creds ; @vasyutas on tiktok , @clarkt on pin , @Mintyteah on pin* </ins> </sub>
-
-check out my [rentry](https://rentry.co/yattaisme) for more info ( dni / iwc , byi ... )
+visit [rentry](https://rentry.co/yattaisme) for dni + other info
 
 
-<sub>discord ; parasiticwisp</sub>
+![mehi](mejester.jpg)
