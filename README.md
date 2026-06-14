@@ -4,7 +4,7 @@
 
 # ˶ᵔ ᵕ ᵔ˶  
 
-taking a break , be back soon ! ( possibly ?? )
+taking a break , will pop on sometimes
 
 i will NOT be responding to any messages or ata signs , but your still welcome to leave one ! ill respond when im off break .
 
