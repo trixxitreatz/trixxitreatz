@@ -10,5 +10,8 @@ i will NOT be responding to any messages or ata signs , but your still welcome t
 
 visit [rentry](https://rentry.co/yattaisme) for dni + other info
 
+main interests ! : *supernatural* , *dandys world* , ever after high , the mighty nien 
+
+
 
 ![mehi](mejester.jpg)
