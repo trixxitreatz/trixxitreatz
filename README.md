@@ -4,9 +4,10 @@
 
 # ˶ᵔ ᵕ ᵔ˶  
 
-taking a break , will pop on sometimes
+" ...one day you will have to stop and find out what they wanted "
 
-i will NOT be responding to any messages or ata signs , but your still welcome to leave one ! ill respond when im off break .
+taking a break ! 
+
 
 visit [rentry](https://rentry.co/yattaisme) for dni + other info
 
