@@ -6,7 +6,7 @@
 
 " ...one day you will have to stop and find out what they wanted "
 
-taking a break ! 
+OHHH MY EXAMS ARE OVER IM FREEEEEEEEEEEEEEEE
 
 
 visit [rentry](https://rentry.co/yattaisme) for dni + other info
