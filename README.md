@@ -6,4 +6,4 @@
 
 holy fuck wtf is happening w dandys world rn
 
-actively trying to associate myself w dw less currently
+lowk taking a break from dw
