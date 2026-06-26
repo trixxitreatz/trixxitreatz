@@ -1,9 +1,7 @@
 <div align=center> 
 
-![](https://komarev.com/ghpvc/?username=yattairl&color=ff69b4&label=tent+visitors)
+![](https://komarev.com/ghpvc/?username=trixxitreatz&color=ff69b4&label=tricksters)
 
 [rentry](https://rentry.co/yattaisme) . [prns.page](https://en.pronouns.page/@yattairl) . [straw](https://yattaisme.straw.page)
 
-holy fuck wtf is happening w dandys world rn
-
-lowk taking a break from dw
+no i wont be making myself a graphic anytime soon
