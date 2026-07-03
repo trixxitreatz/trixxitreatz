@@ -6,4 +6,4 @@ grrr<sub> pls </sub>sign my ata now<sub> pls </sub>
 
 ![thundakidGOOO](thundakid.png)
 
-[ata](https://trixxitreatz.atabook.org/) . [rentry](https://rentry.co/yattaisme) . [prns.page](https://en.pronouns.page/@yattairl) . [straw](https://yattaisme.straw.page) . [carrd (wip)](https://trixxitreatz.carrd.co/)
+[ata](https://trixxi.atabook.org/) . [rentry](https://rentry.co/yattaisme) . [straw](https://trixxitreatz.straw.page) . [carrd (wip)](https://trixxitreatz.carrd.co/)
