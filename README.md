@@ -1,13 +1,11 @@
 <div align=center> 
 
-![](https://komarev.com/ghpvc/?username=trixxitreatz&color=672c40&label=pups)
+![](https://komarev.com/ghpvc/?username=partypuppy&color=eea6de&label=pups)
   
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Griffy&pause=1000&color=672c40&center=true&vCenter=true&width=435&lines=what+is+the+reason+that+you+stare+%3F)](https://git.io/typing-svg)
-
-![graphic](trixxigraphic.png)
+retheme AGAIN #soon
 
 
-[![ata](atabook.png)](https://trickzortreatz.atabook.org) [![straw](strawpage.png)](https://trixxitreatz.straw.page)
+[ata](https://trickzortreatz.atabook.org) [straw](https://trixxitreatz.straw.page)
 
 <details>
 
@@ -17,17 +15,15 @@
 
 pedos , zoos , pro / com / darkshippers or anything like that
 
-problematic people ( drama starters ... drags ppl into unwanted petty drama ... etc 
+problematic people ( drama starters ... drags ppl into unwanted petty drama ... etc )
 
 under 13 , over 21 ( 21+ is moreso a thin ice )
 
 tfc fandom ( dniud )
 
-doubles of my yumes ( [carrd](https://trixxitreatz.carrd.co) )
-
 ### thin ice 
 
-dw fandom
+dw fandom / qwel supporters
 
 lolbit , mikaela reid , cerise hood , twyla boogeyman , sunset shimmer kin doubles
 
@@ -36,5 +32,3 @@ hazbin / helluva fans or vivzie supporters
 14yo's
 
 </details>
-
-[![Typing SVG](https://readme-typing-svg.demolab.com?font=Griffy&pause=1000&color=672c40&center=true&vCenter=true&width=435&lines=do+i+make+you+feel...scared+%3F)](https://git.io/typing-svg)
