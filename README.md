@@ -19,7 +19,7 @@ pedos , zoos , pro / com / darkshippers or anything like that
 
 problematic people ( drama starters ... drags ppl into unwanted petty drama ... etc 
 
-under 14 , over 21
+under 13 , over 21 ( 21+ is moreso a thin ice )
 
 tfc fandom ( dniud )
 
@@ -32,6 +32,8 @@ dw fandom
 lolbit , mikaela reid , cerise hood , twyla boogeyman , sunset shimmer kin doubles
 
 hazbin / helluva fans or vivzie supporters
+
+14yo's
 
 </details>
 
